@@ -6,7 +6,7 @@
 
 ## 团队logo
 
-                                                                                              ![logo_gtyy_动漫风](blob:http://127.0.0.1:57830/b4bb1213-2e0a-4ed7-8554-d7ef95dc02fa) 
+                        ![_20260428182503_2371_197](assets/logo.png)                                                                        
 
   
 
